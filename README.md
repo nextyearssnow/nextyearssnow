@@ -6,5 +6,5 @@
 [<img align="center" alt="alt_text" width="150px" src="https://files.catbox.moe/tcgyvr.png" />](https://rentry.co/gutbucket)
 [<img align="center" alt="alt_text" width="150px" src="https://files.catbox.moe/6ldd9l.png" />](https://pronouns.cc/@gourm4nd)
 </br> </br> </br>
-<img src="https://files.catbox.moe/aetkcc.gif" alt="DggdfydF">
+<img src="./picasion.com_l3CA.gif" alt="DggdfydF">
 
