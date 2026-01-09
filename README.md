@@ -1,11 +1,9 @@
 
-<p align="center">  <img width="800" height="600" alt="arti" src="https://github.com/user-attachments/assets/beb7dec4-4432-470c-ad73-3da692fe55e4" /> </p>
+<p align="center">  <img width="800" height="800" alt="me" src="https://github.com/user-attachments/assets/09182663-0928-4817-a08f-af6fa3df729d" /> </p>
 
 ‎ <p align="center">
-[<img align="center" alt="alt_text" width="150px" src="https://files.catbox.moe/jxwm0k.png" />](https://gourmand.atabook.org/)
-[<img align="center" alt="alt_text" width="150px" src="https://files.catbox.moe/tcgyvr.png" />](https://rentry.co/gutbucket)
-[<img align="center" alt="alt_text" width="150px" src="https://files.catbox.moe/6ldd9l.png" />](https://pronouns.cc/@gourm4nd)
-</br>[<img align="center" alt="alt_text" width="200px" src="https://files.catbox.moe/4nbpyc.png" />](https://bucketofgut.straw.page/)
+[<img align="center" alt="alt_text" width="220px" src="https://github.com/user-attachments/assets/297b5647-6c89-4d9a-a8aa-3a9f7af14350" />](https://gourmand.atabook.org/)
+[<img align="center" alt="alt_text" width="220px" src="https://github.com/user-attachments/assets/9a4c4b93-4ff2-4530-8cc5-89d65b3031e9" />](https://rentry.co/gutbucket)
+[<img align="center" alt="alt_text" width="220px" src="https://github.com/user-attachments/assets/9dbc9106-1aa0-4557-a66f-f3ac78321e4f" />](https://pronouns.cc/@gourm4nd)
+</br>[<img align="center" alt="alt_text" width="220px" src="https://github.com/user-attachments/assets/f6161cd9-2f6a-4884-8772-7201439810e4" />](https://bucketofgut.straw.page/)
 </br> </br> </br>
-<img src="./picasion.com_l3CA.gif" alt="DggdfydF">
-
